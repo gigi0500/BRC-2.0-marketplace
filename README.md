@@ -7,7 +7,7 @@ Welcome to **BRC 2.0 Marketplace**, the **next-generation platform** for seamles
 ## 📞 Contact Us
 
 For inquiries or support, feel free to reach out:
-### **Telegram**: [Abracadabra (@hunter0409)](https://t.me/hunter0409)
+### **Telegram**: [Gigi](https://t.me/gigi0500)
 
 ---
 
